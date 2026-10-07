@@ -4,7 +4,7 @@
 Don't worry about the IWC most of the time. I don't bite.
 
 
-I'm very friendly! If you ever have an issue or a worry, please talk to me about it first. I'll heed whatever concerns you have and apologize.
+I'm very friendly! If you ever have an issue or a worry, please talk to me about it first. I'll heed whatever concerns you have and apologize and explain, depending on what's better fit.
 
 
 I do speak like this in real conversation! If you're ever uncomfortable with it, I'll try to type less formally.
