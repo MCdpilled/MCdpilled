@@ -12,6 +12,10 @@ I do speak like this in real conversation! If you're ever uncomfortable with it,
 
 I am 22. Please don't interact with the intent of befriending me if you're under 18. I'm fine with casual conversation IF I'm not in the 18+ server and you're 16+, but I don't want long-term conversation.
 
+My favorite characters are: General Tullius, River Ward, Micah Bell, Tilly Jackson, Haytham Kenway, Wyll, and Romeo: The Admin.
+
+I like these games: Red Dead Redemption 2, Assassin's Creed 3, Skyrim, Morrowind, Cyberpunk 2077, Baldur's Gate 3, and MCSM.
+
 <!--
 **MCdpilled/MCdpilled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
