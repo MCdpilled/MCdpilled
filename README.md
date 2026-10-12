@@ -1,7 +1,7 @@
 ## IWC! C + H + K
 
 
-Don't worry about the IWC most of the time. I don't bite.
+Don't worry about the IWC most of the time. I don't bite. It is VERY hard to make me mad in any capacity.
 
 
 I'm very friendly! If you ever have an issue or a worry, please talk to me about it first. I'll heed whatever concerns you have and apologize and explain, depending on what's better fit.
