@@ -15,9 +15,13 @@ My favorite characters are: General Tullius, River Ward, Micah Bell, Tilly Jacks
 I like these games: Red Dead Redemption 2, Assassin's Creed 3, Skyrim, Morrowind, Cyberpunk 2077, Baldur's Gate 3, and MCSM.
 
 Here's my strawpage, pronouns page, and atabook!:
+
 https://en.pronouns.page/@mcpilled
+
 https://mcpilled.atabook.org/
+
 https://micahcoylepilled.straw.page/
+
 
 <!--
 **MCdpilled/MCdpilled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
