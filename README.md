@@ -16,6 +16,8 @@ I like these games: Red Dead Redemption 2, Assassin's Creed 3, Skyrim, Morrowind
 
 Here's my strawpage, pronouns page, and atabook!:
 
+My strawpage is made for Discord, so there may be some inconsistencies.
+
 https://en.pronouns.page/@mcpilled
 
 https://mcpilled.atabook.org/
